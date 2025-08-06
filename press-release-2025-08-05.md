@@ -30,7 +30,7 @@ Founded 2015, UK‑based **TechNova** leads in renewable energy tech & sustainab
 - *“Charged my camera on a mountain — amazing.”* — Liam P., UK  - *“Perfect for van life — compact & powerful.”* — Sofia R., Spain  - *“I use it daily, free solar power!”* — Jason K., Australia  
 ---
 ## Future Roadmap
-2026 expansion planned: laptop solar chargers + transparent solar films.  
+2026 expansion planned: laptop solar chargers + transparent solar films. 
 ---
 ## Media Contact
 **Sarah Mitchell**  PR Manager, TechNova   press@technova.com   +44 20 7946 0123   [TechNova official website](https://www.technova.com)  
